@@ -1,4 +1,4 @@
-# GTA 5 Cheats - Download Hacks for Unlimited Power & More
+# GTA 5 Cheats - Download Hacks for Unlimited Power
 Download GTA 5 cheats for unlimited resources, vehicles, and abilities. Enhance your gaming experience with powerful hacks for GTA 5 today.
 
 <div align="center">
